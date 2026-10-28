@@ -1,1 +1,0 @@
-15:30 ET: 7-8 video rebuilt (v5: portraits/place/food photos, 12 animated explainers, headline inserts, new Maduro section with sources, no 'not guilty' text, Smartmatic 2017 line); page/infographic/PDF updated; image credits page added
